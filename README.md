@@ -2,7 +2,7 @@
 
 A student currently seeks for internship.
 
-⚡ Fun fact: Although I'm a picky eater, I enjoy trying new foods when they're served.
+⚡ Fun fact: *Wait for the newest episode of Kamen Rider Geats and Ohsama Sentai King-Ohger every Sunday morning!*
 
 ### Connect with me:
 
