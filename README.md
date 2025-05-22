@@ -2,6 +2,8 @@
 
 ⚡ Fun fact: *Wait for the newest episode of Kamen Rider and Sentai series every Sunday morning!*
 
+ps: the profile pic not my dog
+
 ### Connect with me:
 
 - 🌐Website: [My Portfolio](https://jhtan2000.github.io)
